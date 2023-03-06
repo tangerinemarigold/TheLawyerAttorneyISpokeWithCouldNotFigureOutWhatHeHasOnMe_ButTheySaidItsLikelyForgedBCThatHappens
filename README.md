@@ -25,3 +25,5 @@ every job ive had before that one and every job ive had after it, ive been succe
 im not afraid to pursue it legally, its the right thing to do and i can afford it, its just going to be really annoying to be linked to these lunatics for the rest of my life
 
 jason's life sucks right now because he has absolutely no idea what im going to do next. that must be an awful day-to-day life, what a loser. hes literally wasting away, stalking and consumed with this whole thing. that's his reality. hes lost already.
+
+i asked the lawyer if i could pursue a restraining order for stalking and they said that could be possible. but if they get jail time that wont be necessary. i hope their mugshots end up on the news. nobody goes after a resigned employee, literally nobody. this is the first ive heard of it that's why i cant believe it.
