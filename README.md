@@ -27,3 +27,5 @@ im not afraid to pursue it legally, its the right thing to do and i can afford i
 jason's life sucks right now because he has absolutely no idea what im going to do next. that must be an awful day-to-day life, what a loser. hes literally wasting away, stalking and consumed with this whole thing. that's his reality. hes lost already.
 
 i asked the lawyer if i could pursue a restraining order for stalking and they said that could be possible. but if they get jail time that wont be necessary. i hope their mugshots end up on the news. nobody goes after a resigned employee, literally nobody. this is the first ive heard of it that's why i cant believe it.
+
+i have you and you have me. these two lunatics paul jason have nothing but their miserable lives: theyre going to totally throw each other under the bus: "he told me to do it" "he lied to me about x,y,z" there are no heroes amongst thieves. what cowards, theyve been hiding behind a computer screen; come say it to my face all the crazy accusations/racism etc. why hide behind a screen.
