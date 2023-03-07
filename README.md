@@ -31,3 +31,5 @@ i asked the lawyer if i could pursue a restraining order for stalking and they s
 i have you and you have me. these two lunatics paul jason have nothing but their miserable lives: theyre going to totally throw each other under the bus: "he told me to do it" "he lied to me about x,y,z" there are no heroes amongst thieves. what cowards, theyve been hiding behind a computer screen; come say it to my face all the crazy accusations/racism etc. why hide behind a screen.
 
 Are you laughing at the highschool statistics textbook, it was purple i remember and the font was really big, it was def not college level. i saw Paul refer to it when he would watch youtube tutorials. it was a circus, still is.
+
+so much time has passed -- like whenever i go through the series of events, im like oh yeah that happened, that happened next but it was A YEAR LATER etc. the years passed by really quickly :( also my mind cant accept the reason you cant call me back is bc of snakemake or whatver. that's just awful. its just too awful, those are dots and my mind is just not connecting it. going through the process legally will be fine but i wont get the years back. :(
