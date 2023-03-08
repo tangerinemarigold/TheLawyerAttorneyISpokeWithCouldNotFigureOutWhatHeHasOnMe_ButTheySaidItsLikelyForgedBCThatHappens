@@ -33,3 +33,5 @@ i have you and you have me. these two lunatics paul jason have nothing but their
 Are you laughing at the highschool statistics textbook, it was purple i remember and the font was really big, it was def not college level. i saw Paul refer to it when he would watch youtube tutorials. it was a circus, still is.
 
 so much time has passed -- like whenever i go through the series of events, im like oh yeah that happened, that happened next but it was A YEAR LATER etc. the years passed by really quickly :( also my mind cant accept the reason you cant call me back is bc of snakemake or whatver. that's just awful. its just too awful, those are dots and my mind is just not connecting it. going through the process legally will be fine but i wont get the years back. :(
+
+i :clap: am :clap: beyond :clap: furious :clap: 
