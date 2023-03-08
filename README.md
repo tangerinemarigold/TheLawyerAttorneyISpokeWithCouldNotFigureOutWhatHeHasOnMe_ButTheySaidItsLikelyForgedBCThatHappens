@@ -35,3 +35,7 @@ Are you laughing at the highschool statistics textbook, it was purple i remember
 so much time has passed -- like whenever i go through the series of events, im like oh yeah that happened, that happened next but it was A YEAR LATER etc. the years passed by really quickly :( also my mind cant accept the reason you cant call me back is bc of snakemake or whatver. that's just awful. its just too awful, those are dots and my mind is just not connecting it. going through the process legally will be fine but i wont get the years back. :(
 
 i :clap: am :clap: beyond :clap: furious :clap: 
+
+ohhhhh i get it, you guys didn't know who these people (jason/paul) were years ago. but when someone leaves a job by resigning, shouldnt it be assumed automatically that they want nothing to do with their former employer and their thoughts on their former employer aren't going to be great either. but i didnt say anything bad about them until i realized what was going on. not even on the phone with you, bc i had moved on.
+
+there's so much evidence...SO MUCH...this is a very easy suit. when are you going to call me
