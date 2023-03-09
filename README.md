@@ -56,5 +56,11 @@ i think he knew over the years he was losing so that's why he would come back wi
 
 but for the time being just think: me, you, a judge, disgruntled jason, presenting all of this evidence/emails from 2017!! maybe even 2015 for me. we're good people living our lives, we didn't do anything wrong. there's no way jason can win, he knows that, he's always known that.
 
+i think jason is possibly very depressed. i think he gets addicted to things and he can't control that about himself. his pokemon go score was higher than anyone's, like when i heard it, i was like wtf, that means he was playing it for hours everyday (for me it was just during lunch). i think he created an echochamber for himself with other incels/misogynists that he would take counsel from in academia. i have some names of people he's retweeted before which were out of character because they're known bad people in academia. the whole thing is bizarre but totally possible. i think he's also been projecting his insecurities on me/you other people in ny, in fact i think the only thing jasono has been doing is projecting. i think he's very deeply disturbed. i also think he will try and settle which i wont do. wcmc should sue him imo.
 
+dont delete anything, even the emails i sent to you in early 2019 that would autodestruct, i have the original copy. i just dont have a screenshot of my phone calls to you in 2018 but those can be looked up via phone records. and i have the emails i sent to jason over the years about my prospects of what i wanted to do in graduate school. so what he was telling you all -- if it doesn't align with that, shows he was deliberately misleading things.
+
+like i said, i have a lot of things id like to share but i cant.
+
+[unbelieveable](https://tenor.com/view/this-is-a-case-for-the-fbi-gif-7886284)
 
