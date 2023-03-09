@@ -50,3 +50,4 @@ https://en.wikipedia.org/wiki/Red_herring i remember this concept from organic c
 
 so these things have to __work out__ otherwise it's not a strong case in front of a judge. just saying. not forcing anything but it would be great if it were to work out like that.
 
+maybe we (probably very difficult though) can even pull his records from his time at vanderbilt and dartmouth, has he gotten in trouble for stalking/sexual harassment before? and he just learned to hide it by the time he got to Penn etc.
