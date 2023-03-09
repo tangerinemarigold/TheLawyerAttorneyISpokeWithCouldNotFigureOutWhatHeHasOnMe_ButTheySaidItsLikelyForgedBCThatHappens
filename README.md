@@ -44,6 +44,9 @@ im so furious >:|
 
 i think this is a very simple case of stalking and then defamation, then actually spying. what a lunatic.
 
-very vaguely this is why he or they won't budge because when it goes in front of a judge (i will absolutely never settle, this lunatic has to go for good), it's jason the disgruntled former boss versus two people that are possibly married by then, and it's going to be very obvious to the judge who the conniving stalker/lunatic is. that's what makes sense from my end. it has nothing to do with snakemake anymore. it's stalking/spying. i think his emails could get seized or even his computer, his ip address could be looked up by github etc. this is huge.
+very vaguely this is why he or they won't budge because when it goes in front of a judge (i will absolutely never settle, this lunatic has to go for good), it's jason the disgruntled former boss versus two people that are possibly __married by then__, and it's going to be very obvious to the judge who the conniving stalker/lunatic is. that's what makes sense from my end. it has nothing to do with snakemake anymore. it's stalking/spying. i think his emails could get seized or even his computer, his ip address could be looked up by github etc. this is huge. 
 
+https://en.wikipedia.org/wiki/Red_herring i remember this concept from organic chemistry, it was a technique for the multiple choice exams but anyway, the whole thing is about stalking/spying. everything else is just a red herring (snakemake, performance review, everything else i cant figure out). its very obvious that jason is a disgruntled former boss who is spying on __my/our start up ideas__ -- so that has to be presented in front of a judge
+
+so these things have to __work out__ otherwise it's not a strong case in front of a judge. just saying. not forcing anything but it would be great if it were to work out like that.
 
