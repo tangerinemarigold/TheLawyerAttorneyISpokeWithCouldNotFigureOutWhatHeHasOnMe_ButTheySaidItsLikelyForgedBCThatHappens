@@ -64,3 +64,4 @@ like i said, i have a lot of things id like to share but i cant.
 
 [unbelieveable](https://tenor.com/view/this-is-a-case-for-the-fbi-gif-7886284)
 
+i don't have to do anything, you don't have to do anything, it all already happened. we just have to compile the evidence, present it in front of a judge. and that's how the cookie crumbles. but reiterating, getting married, continuing to work on a startup, that would really help things, but only if you want to :wink:
