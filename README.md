@@ -39,3 +39,5 @@ i :clap: am :clap: beyond :clap: furious :clap:
 ohhhhh i get it, you guys didn't know who these people (jason/paul) were years ago. but when someone leaves a job by resigning, shouldnt it be assumed automatically that they want nothing to do with their former employer and their thoughts on their former employer aren't going to be great either. but i didnt say anything bad about them until i realized what was going on. not even on the phone with you, bc i had moved on.
 
 there's so much evidence...SO MUCH...this is a very easy suit. when are you going to call me
+
+im so furious >:|
