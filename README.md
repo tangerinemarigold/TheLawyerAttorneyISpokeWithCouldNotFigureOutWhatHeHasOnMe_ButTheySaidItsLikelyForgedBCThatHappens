@@ -51,3 +51,10 @@ https://en.wikipedia.org/wiki/Red_herring i remember this concept from organic c
 so these things have to __work out__ otherwise it's not a strong case in front of a judge. just saying. not forcing anything but it would be great if it were to work out like that.
 
 maybe we (probably very difficult though) can even pull his records from his time at vanderbilt and dartmouth, has he gotten in trouble for stalking/sexual harassment before? and he just learned to hide it by the time he got to Penn etc.
+
+i think he knew over the years he was losing so that's why he would come back with new crimes and libel/slander. that's what makes sense to me. there's so much more i want to tell you but my lawyers said i shouldn't talk about this. nowwwww i need you for so many reasons :wink:
+
+but for the time being just think: me, you, a judge, disgruntled jason, presenting all of this evidence/emails from 2017!! maybe even 2015 for me. we're good people living our lives, we didn't do anything wrong. there's no way jason can win, he knows that, he's always known that.
+
+
+
