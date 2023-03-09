@@ -41,3 +41,6 @@ ohhhhh i get it, you guys didn't know who these people (jason/paul) were years a
 there's so much evidence...SO MUCH...this is a very easy suit. when are you going to call me
 
 im so furious >:|
+
+i think this is a very simple case of stalking and then defamation, then actually spying. what a lunatic.
+
