@@ -75,3 +75,7 @@ i dont think he's that diabolical, he is but not that much (again jason is unimp
 dont be sad, we will win this.
 
 and whenever, over the years, you felt the push/pressure from his side (i assume that's through intimidating emails from his @hotmail.com lawyers), it's all because he was afraid losing. __jason has always known he could go to prison for his actions, going back to 2017.__
+
+you can also take solace in the very obvious fact that jason's life just sucks right now, even though he's trying very hard to [save face](https://raw.githubusercontent.com/tangerinemarigold/Hey_Jason_Moore_________Feel_Free_To_Distribute_This/main/Screen%20Shot%202023-03-06%20at%207.01.46%20PM.png) because that's all he has left, he does not have a defense against the stalking or anything else. all he has left is his twitter to save face, it's all really sad. (but we're not out here trying to harm anyone, jason harmed himself, he's a self destructive person). aside from being delusional and a lunatic, he's probably also paranoid. he has no idea what's going to happen next and when.
+
+this will turn around and we will win this. and the bad guy will go to jail, absolutely.
