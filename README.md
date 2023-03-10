@@ -119,3 +119,7 @@ anyone who was in cahoots with jason moore needs to surrender evidence, because 
 do you know how difficult it is to sit through meetings with these jokes in my mind!! i have to release them into the world so you can laugh and not be sad (if you are) this is like a whole ass another job i have, literally unpaid labor!! what a nuisance this uggo incel has been!!
 
 im telling you!! im calling it!! there's just way more to this than meets the eye. how did he get this obsessed. what if this entire time he wants to wear your skin too!! this is soo annoying!!
+
+he's stalking multiple people, how do you know he's only/just interested in me. he could be very much confused. i dont know. im not making fun, it could happen, it could be a possibility.
+
+
