@@ -104,3 +104,4 @@ ok, tl;dr this is a case of stalking and spying, everything else has been a red 
 
 so eventually, sometime this year i hope, we will need to put an entire timeline together of all of the events going back to 2017, which is actually going to be a lot of work.
 
+i dont know how you're handling it, but it is personal, its all a personal attack. but jason is a lunatic/mentally unwell, i think to some degree he cant even help what hes doing, he's deranged and then hes got lawyers who hes taking counsel with. it's too bad what happened, things started out so great in april 2017, but we will win in the end and go back to where we left off, we have to. :kissing_heart:	
