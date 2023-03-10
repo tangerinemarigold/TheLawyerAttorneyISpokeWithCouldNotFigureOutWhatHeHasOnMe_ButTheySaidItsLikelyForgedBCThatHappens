@@ -95,3 +95,7 @@ Ohhh okay, this is why he's obsessed with wcmc/or going after specifically wcmc,
 i use to read a lot of articles on the mind of trump when he was in office lol so im well prepared on how to unravel lunatics, they're similar, sure. but there are some really smart people around me that can unravel jason even more.
 
 okay i have to take my mind off this and relax, prepare for the next day and etc!! gnite
+
+imagine the new yorker doing an entire exposé article on this. or even why people like jason get employed by schools like Penn etc. because he was always average. this is huge.
+
+i realized years ago, that the only thing i could do was to keep writing to you. and then i kept doing it because i just had to but looking back im glad i did because it's all evidence that will get presented in front of a judge now.
