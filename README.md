@@ -69,3 +69,7 @@ i don't have to do anything, you don't have to do anything, it all already happe
 just remember, everything jason has said, is saying, will say, it's all because he doesn't want to go to prison. we are good people, we did not do anything wrong.
 
 so if he was forcing coauthorship or being on my committee -- now you understand why, that way he wont be a lunatic stalker
+
+i dont think he's that diabolical, he is but not that much (again jason is unimpressive if you havent met him in person, really), it's just things spun out of control for him (because reality was different than what he was saying -- and that could go back to what paul was saying about me to him bc paul doesnt want to lose his job (but paul should get fired))) but he just couldnt keep up with the truth so he made up lies. i think it's just that simple.
+
+dont be sad, we will win this.
