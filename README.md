@@ -96,6 +96,11 @@ i use to read a lot of articles on the mind of trump when he was in office lol s
 
 okay i have to take my mind off this and relax, prepare for the next day and etc!! gnite
 
-imagine the new yorker doing an entire exposé article on this. or even why people like jason get employed by schools like Penn etc. because he was always average. this is huge.
+imagine the new yorker doing an entire exposé article on this. or even why people like jason get employed by schools like Penn etc. because he was always average. this is huge. (yeah penn isnt going to like that, but then why did they hire him to begin with, did they do their due diligence to figure out who jason was in his previous positions. i do not think this whole thing is his first rodeo. also i want to write this new yorker exposé article on jason, i know so much, ive figured out so much, i mean i was there lol)
 
-i realized years ago, that the only thing i could do was to keep writing to you. and then i kept doing it because i just had to but looking back im glad i did because it's all evidence that will get presented in front of a judge now.
+i realized years ago, that the only thing i could do was to keep writing to you. and then i kept doing it because i just had to but looking back im glad i did because it's all evidence that will get presented in front of a judge now. :smiling_face_with_three_hearts:
+
+ok, tl;dr this is a case of stalking and spying, everything else has been a red herring.
+
+so eventually, sometime this year i hope, we will need to put an entire timeline together of all of the events going back to 2017, which is actually going to be a lot of work.
+
