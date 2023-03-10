@@ -117,3 +117,5 @@ im never going to respond to him on twitter, never ever ever because jason is my
 anyone who was in cahoots with jason moore needs to surrender evidence, because 1. he hates you 2. he envies you 3. he only cares about the game hes playing and himself, he's a completely a self-destructive person, his entire professional life will go up in flames and it's of his own doing, he doesnt care about his students and their reputation etc. and that's too bad. but the right thing has to be done. i cant believe hes walking around in broad daylight living a double life, how bizarre, maybe thats the thrill for him, that he gets to get away with it for just another day. not for long. 
 
 do you know how difficult it is to sit through meetings with these jokes in my mind!! i have to release them into the world so you can laugh and not be sad (if you are) this is like a whole ass another job i have, literally unpaid labor!! what a nuisance this uggo incel has been!!
+
+im telling you!! im calling it!! there's just way more to this than meets the eye. how did he get this obsessed. what if this entire time he wants to wear your skin too!! this is soo annoying!!
