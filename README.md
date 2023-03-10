@@ -120,6 +120,6 @@ do you know how difficult it is to sit through meetings with these jokes in my m
 
 im telling you!! im calling it!! there's just way more to this than meets the eye. how did he get this obsessed. what if this entire time he wants to wear your skin too!! this is soo annoying!!
 
-he's stalking multiple people, how do you know he's only/just interested in me. he could be very much confused. i dont know. im not making fun, it could happen, it could be a possibility.
+he's stalking multiple people, how do you know he's only/just interested in me. he could be very much confused. i dont know. im not making fun, it could happen, it could be a possibility. all im saying is how do you know jason moore isnt attempting to learn turkish. how do you really know.
 
 
