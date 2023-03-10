@@ -67,3 +67,5 @@ like i said, i have a lot of things id like to share but i cant.
 i don't have to do anything, you don't have to do anything, it all already happened. we just have to compile the evidence, present it in front of a judge. and that's how the cookie crumbles. but reiterating, getting married, continuing to work on a startup, that would really help things, but only if you want to :wink:
 
 just remember, everything jason has said, is saying, will say, it's all because he doesn't want to go to prison. we are good people, we did not do anything wrong.
+
+so if he was forcing coauthorship or being on my committee -- now you understand why, that way he wont be a lunatic stalker
