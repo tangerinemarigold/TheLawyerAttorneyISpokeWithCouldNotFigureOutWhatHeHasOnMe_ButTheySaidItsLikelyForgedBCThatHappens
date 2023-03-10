@@ -73,3 +73,5 @@ so if he was forcing coauthorship or being on my committee -- now you understand
 i dont think he's that diabolical, he is but not that much (again jason is unimpressive if you havent met him in person, really), it's just things spun out of control for him (because reality was different than what he was saying -- and that could go back to what paul was saying about me to him bc paul doesnt want to lose his job (but paul should get fired))) but he just couldnt keep up with the truth so he made up lies. i think it's just that simple.
 
 dont be sad, we will win this.
+
+and whenever, over the years, you felt the push/pressure from his side (i assume that's through intimidating emails from his @hotmail.com lawyers), it's all because he was afraid losing. __jason has always known he could go to prison for his actions, going back to 2017.__
