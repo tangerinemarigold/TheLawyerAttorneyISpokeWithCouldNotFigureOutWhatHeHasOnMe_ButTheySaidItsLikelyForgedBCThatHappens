@@ -132,5 +132,7 @@ just think, what is the fuel that is propelling the obsession? it has to be more
 
 its not fair to out jason either if he is struggling with his sexuality. but from the legal perspective, why is he stalking you too. why did he insert himself into a relationship. hes also very depressed, maybe thats what is making him unhappy. i dont know, im not in the business of humiliating people for their struggles but i have to know why hes stalking you too. im just saying, we just dont know everything. whats his obsession with hypermasculinity, why does he have to show everyone hes very straight etc. its very odd. something is just not right.
 
+jason could have very serious feelings for you and that could make him feel very embarassed. we just don't know everything so i wouldnt take this off the table.
+
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
 
