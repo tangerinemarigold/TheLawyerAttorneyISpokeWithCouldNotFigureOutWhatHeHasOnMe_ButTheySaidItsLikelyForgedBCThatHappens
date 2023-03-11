@@ -134,5 +134,7 @@ its not fair to out jason either if he is struggling with his sexuality. but fro
 
 jason could have very serious feelings for you and that could make him feel very embarassed. we just don't know everything so i wouldnt take this off the table.
 
+it's actually not funny, i would never laugh at someone who has serious feelings for someone/anyone. but the problem is, i think you and i live very private lives and those very private lives were thrown in to the world of a stranger or strangers and that was never supposed to happen. and this could just be one outcome of that, that jason developed one-sided feelings for the both of us and hes embarassed so hes taking it out on me to prove to everyone that hes very straight. why would anyone take it this far. its bizarre. 
+
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
 
