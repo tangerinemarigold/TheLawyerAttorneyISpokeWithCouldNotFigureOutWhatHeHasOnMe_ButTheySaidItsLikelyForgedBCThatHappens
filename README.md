@@ -122,4 +122,4 @@ im telling you!! im calling it!! there's just way more to this than meets the ey
 
 he's stalking multiple people, how do you know he's only/just interested in me. he could be very much confused. i dont know. im not making fun, it could happen, it could be a possibility. all im saying is how do you know jason moore isnt attempting to learn turkish. how do you really know.
 
-
+i think im done for the day :kissing_heart: working on a super huge project that i cant talk about, i cant even ask on stackoverflow, draining
