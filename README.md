@@ -140,6 +140,14 @@ maybe he just doesnt even know this about himself because hes been too busy bein
 
 someone who is like going leaps and bounds, obsessed with showing everyone that he is straight, it's just odd. whats really propelling that desire to show everyone that hes straight, i really believe this is odd. why take it this far. there is more to this.
 
+just know, that we do not know everything. be prepared to be very surprised. he would never admit his possible feelings for your or someone else in nyc ever, and i dont think we can ask him in court its too personal. unless there is something written. but eventually, over years, maybe we will understand the situation better. but these penn people, were never ever supposed to have access to my private life/yours, this is why. because you dont know who they are and what they can do with it. this whole thing could just be very possible, it would certainly explain the crisis he is in and his very odd behavior. 
+
+he could be very embarrassed of himself bc he might have weird ideals about masculinity esp since hes a very possible white supremacist (e.g. the caucasian admixture situation). im not just calling jason possibly gay out of no where, its because hes stalking you too. stalking is a serious psychological and emotional condition someone is in. why is he stalking the two of us. i genuinely believe that he has feelings for the both of us. hes just projecting everything on everyone because hes embarrassed and ashamed. 
+
+did he ever play the victim here? he was never the victim, i did not do anything to him at all. where is all of this emotion coming from, from his side. its really bizarre. have you ever seen anyone get so emotional and triggered over a resignation, ever?
+
+people will pull him apart if he ever said anything racist or islamophobic. completely unravel him. i just dont know enough and im just one person lol. maybe hes in a crisis and hes interested in religion or islam, maybe hes just too embarrassed to admit it. i dont care if he is or isnt interested in islam, that is none of my business. how you learn about religion isnt by stalking a resigned employee, you can just go on wikipedia, dumbass. i dont know. what is fueling the obsession, i have to figure that out because its really bothering me that someone out there is this obsessed with me.
+
 ok im tired i have to sleep
 
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
