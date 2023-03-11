@@ -126,4 +126,4 @@ i think im done for the day :kissing_heart: working on a super huge project that
 
 im just saying, be prepared to be surprised. we may have a good idea of who he is but we just don't know the whole story at all. there is a chance he could just be interested in the both of us. we do not know what we do not know. the psycho obsession shouldnt have gotten to this level, there has to be more going on if you know what i mean.
 
-
+i do genuinely believe that he could be very confused about himself and that could make him feel very embarrassed and he's taking it out on me to prove that he's not confused at all, and he has to show everyone that he's very straight etc. this whole thing is just very odd. he's stalking you too. so this could be a route for the case that we're just not sure why he's obsessed with you too. we might even have to bring this up to the judge. its not a joke, im being very serious.
