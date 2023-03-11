@@ -154,6 +154,8 @@ im so sorry for bringing this absolute untethered maniac of epic and historical 
 
 if he said racist anything, i will absolutely annihilate him in court. hasnt he looked in the mirror, hes a solid 1 out of 10, a complete uggo, how is that the master race
 
+i am just the [wrong person](https://www.youtube.com/watch?v=YSpnuniNznc) to mess with. if he actually knew me more, more than hes been claiming, he would have not gone this far. its too late now.
+
 ok im tired i have to sleep
 
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
