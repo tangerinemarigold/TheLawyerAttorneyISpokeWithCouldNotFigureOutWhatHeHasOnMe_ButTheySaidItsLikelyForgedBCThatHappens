@@ -136,5 +136,7 @@ jason could have very serious feelings for you and that could make him feel very
 
 it's actually not funny, i would never laugh at someone who has serious feelings for someone/anyone. but the problem is, i think you and i live very private lives and those very private lives were thrown in to the world of a stranger or strangers and that was never supposed to happen. and this could just be one outcome of that, that jason developed one-sided feelings for the both of us and hes embarassed so hes taking it out on me to prove to everyone that hes very straight. why would anyone take it this far. its bizarre. 
 
+maybe he just doesnt even know this about himself because hes been too busy being a competitive lunatic and everything else he did. i genuinely believe he could be struggling with his sexuality, i really believe that could be a real driving force behind this whole thing. because why else would he be stalking you too. its not just me, its you too. or someone else in new york. we do not have all the information. we do not know everything yet.
+
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
 
