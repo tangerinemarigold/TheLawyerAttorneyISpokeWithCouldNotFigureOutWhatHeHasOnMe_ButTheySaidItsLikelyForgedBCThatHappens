@@ -148,6 +148,12 @@ did he ever play the victim here? he was never the victim, i did not do anything
 
 people will pull him apart if he ever said anything racist or islamophobic. completely unravel him. i just dont know enough and im just one person lol. maybe hes in a crisis and hes interested in religion or islam, maybe hes just too embarrassed to admit it. i dont care if he is or isnt interested in islam, that is none of my business. how you learn about religion isnt by stalking a resigned employee, you can just go on wikipedia, dumbass. i dont know. what is fueling the obsession, i have to figure that out because its really bothering me that someone out there is this obsessed with me.
 
+you're very adorable, i can completely see jason having feelings for you -- it could be very possible and that's whats fueling the need to take it out on me, so he can hide his feelings etc. im absolutely serious. this could be very complicated, we just dont know everything yet. 
+
+im so sorry for bringing this absolute untethered maniac of epic and historical proportions into everyones lives, i had no clue. i also had no clue he would be so persistent, like take a hint already jason
+
+if he said racist anything, i will absolutely annihilate him in court. hasnt he looked in the mirror, hes a solid 1 out of 10, a complete uggo, how is that the master race
+
 ok im tired i have to sleep
 
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
