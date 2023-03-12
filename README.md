@@ -160,11 +160,13 @@ this whole thing is like that game, [reversi](https://en.wikipedia.org/wiki/Reve
 
 the problem with this concrete tiehole fucker is that hes a self-destructive person, he doesnt care about himself, who he hurts and probably even what happens to him, for the time being hes trying to save face. but we will not be able to get that time back. jason you loser for life, if you want to destroy yourself, fine, i/we could care less, we dont care what happens to you at all, but dont take other people out with you. this is absolutely historical, i will not stop making noise, i will even go after his lawyers, im not going to stop, im scared at all.
 
-he might be bisexual, he might be interested in islam, i could careless about either; i want to just put him infront of a judge as soon as i can so he can melt, face criminal charges and be locked away from the rest of society for good.
+he might be bisexual, he might be interested in islam -- i think he just might be too embarrassed to admit hes bisexual, but i could careless about either; i want to just put him infront of a judge as soon as i can so he can melt, face criminal charges and be locked away from the rest of society for good.
 
 i read somewhere that with people who project, __"every accusation is a confession"__ i mean really, that could be true. i dont completely know what he said about me, of course i will find out, but he's just been projecting the entire time, mainly so the attention deflects from him. what a loser, i really think the whole big picture story is that he is a professor wasting university time. thats how it will be covered in the news/media. that's what hes going to be known for. a time-wasting 50 year old uggo incel.
 
 every single person that was involved in this with jason, every henchmen and crony, #2, syndicate, forwarder or whatever you want to call them, i will get their names and legally go after them. because its the right thing to do. im not scared and i wont stop.
+
+btw i dont get angry often, rare i do. im generally level headed, usually cool, i actually usually dont care about stuff, i dont take things personally too often. BUT when i get angry, i get really angry, like i am right now because of this whole thing. the trick i think is to channel the anger into something productive, into maybe humor too but in a way where i dont lose my credability so thats actually really difficult, i dont know. im just one person trying to figure this whole thing out. writing helps it seems, so its not all in my head, when its out i can move on and not get caught up in it and etc. jason deserves jail time and no less, i will make sure of it.
 
 ok im tired i have to sleep
 
