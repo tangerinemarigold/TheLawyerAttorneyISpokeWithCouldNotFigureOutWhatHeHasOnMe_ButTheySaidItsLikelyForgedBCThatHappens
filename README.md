@@ -160,6 +160,8 @@ this whole thing is like that game, [reversi](https://en.wikipedia.org/wiki/Reve
 
 the problem with this concrete tiehole fucker is that hes a self-destructive person, he doesnt care about himself, who he hurts and probably even what happens to him, for the time being hes trying to save face. but we will not be able to get that time back. jason you loser for life, if you want to destroy yourself, fine, i/we could care less, we dont care what happens to you at all, but dont take other people out with you. this is absolutely historical, i will not stop making noise, i will even go after his lawyers, im not going to stop, im scared at all.
 
+he might be bisexual, he might be interested in islam, i could careless about either; i want to just put him infront of a judge as soon as i can so he can melt, face criminal charges and be locked away from the rest of society for good.
+
 ok im tired i have to sleep
 
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
