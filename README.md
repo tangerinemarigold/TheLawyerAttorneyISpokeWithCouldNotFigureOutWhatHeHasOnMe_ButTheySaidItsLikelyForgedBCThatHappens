@@ -156,6 +156,8 @@ if he said racist anything, i will absolutely annihilate him in court. hasnt he 
 
 i am just the [wrong person](https://www.youtube.com/watch?v=YSpnuniNznc) to mess with. if he actually knew me more, more than hes been claiming, he would have not gone this far. its too late now.
 
+this whole thing is like that game, [reversi](https://en.wikipedia.org/wiki/Reversi), that i use to play in like middle school or whatever lol, as there are twists and turns, all of the chips or whatever theyre called, change colors and you have to reanalyze historical data with new information. what were once white chips turn black and vice versa. i dont know what thats called, i feel like its called something.
+
 ok im tired i have to sleep
 
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
