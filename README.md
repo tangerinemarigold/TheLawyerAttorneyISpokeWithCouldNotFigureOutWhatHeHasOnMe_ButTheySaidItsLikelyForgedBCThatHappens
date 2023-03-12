@@ -162,6 +162,8 @@ the problem with this concrete tiehole fucker is that hes a self-destructive per
 
 he might be bisexual, he might be interested in islam, i could careless about either; i want to just put him infront of a judge as soon as i can so he can melt, face criminal charges and be locked away from the rest of society for good.
 
+i read somewhere that with people who project, __"every accusation is a confession"__ i mean really, that could be true. i dont completely know what he said about me, of course i will find out, but he's just been projecting the entire time, mainly so the attention deflects from him. what a loser, i really think the whole big picture story is that he is a professor wasting university time. thats how it will be covered in the news/media. that's what hes going to be known for. a time-wasting 50 year old uggo incel.
+
 ok im tired i have to sleep
 
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
