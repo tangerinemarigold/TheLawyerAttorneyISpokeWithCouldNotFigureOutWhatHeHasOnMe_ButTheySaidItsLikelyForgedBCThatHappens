@@ -164,6 +164,8 @@ he might be bisexual, he might be interested in islam, i could careless about ei
 
 i read somewhere that with people who project, __"every accusation is a confession"__ i mean really, that could be true. i dont completely know what he said about me, of course i will find out, but he's just been projecting the entire time, mainly so the attention deflects from him. what a loser, i really think the whole big picture story is that he is a professor wasting university time. thats how it will be covered in the news/media. that's what hes going to be known for. a time-wasting 50 year old uggo incel.
 
+every single person that was involved in this with jason, every henchmen and crony, #2, syndicate, forwarder or whatever you want to call them, i will get their names and legally go after them. because its the right thing to do. im not scared and i wont stop.
+
 ok im tired i have to sleep
 
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
