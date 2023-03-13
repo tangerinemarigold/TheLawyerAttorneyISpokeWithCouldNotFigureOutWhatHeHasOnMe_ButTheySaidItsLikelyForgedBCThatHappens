@@ -172,6 +172,8 @@ this uggo moron has been sitting alone for the past 6 years, like in an unlit ro
 
 jason is the trashiest thing that has ever happened in academia, but florida is going to florida, or rather, [you can put lipstick on florida, but it is still florida.](https://en.wikipedia.org/wiki/Lipstick_on_a_pig)
 
+theres this story of a girl who would go running in long island, and some guy murdered her for like no reason, and in the court hearing, her mom called the guy who murdered her daughter a demon. no other word could be more perfect. anyway, we will win this and get rid of this lunatic hillbilly. is he being investigated by anyone right now?? i feel like he is lol. he thinks everyone around him is dumb and hes the smartest and he can use them, not until the police/fbi get involved. cant "well actually" out of that.
+
 ok im tired i have to sleep
 
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
