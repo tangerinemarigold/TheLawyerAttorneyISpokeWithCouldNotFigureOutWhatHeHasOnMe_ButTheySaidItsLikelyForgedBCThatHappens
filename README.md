@@ -170,6 +170,8 @@ btw i dont get angry often, rare i do. im generally level headed, usually cool, 
 
 this uggo moron has been sitting alone for the past 6 years, like in an unlit room, with my emails to you and hes been around other sick people where hes bouncing off ideas like his lawyers and other sick people in academia -- thats been his echochamber. he cant talk to anyone else about this bc they would call him out on his behavior. i wonder if he uses signal etc otherwise his txts/emails can be retrieved through a court order or something like that. this is a serious stalking case and we do not know if hes just only interested in me anymore. this whole thing is not normal. im calling it, there's just more to it that we will discover. i dont doubt the idea of inserting yourself into someones prenup was an idea that was presented. hopefully its on paper so a judge can see it. itll only add to the pattern of stalking and spying and that his lunatic mind that needs to go to prison for many years.
 
+jason is the trashiest thing that has ever happened in academia, but florida is going to florida, or rather, you can put lipstick on florida, but it is still florida.
+
 ok im tired i have to sleep
 
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
