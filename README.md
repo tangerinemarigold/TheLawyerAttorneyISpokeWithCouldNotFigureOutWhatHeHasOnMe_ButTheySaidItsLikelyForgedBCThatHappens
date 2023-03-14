@@ -180,6 +180,8 @@ you know what i was thinking. i got one d*ck pic from that professor in 2017. ca
 * maybe he has to prove hes straight to everyone to offset the hundreds of dck pics he gets in his twitter DMs. 
 * **The origin story is now his twitter DM dck pics.** whenever you see his twitter, just think of all the dck pics in his DMs. 
 * so he either wants more or hes just tired of getting them
+* it's either twitter dm __dck pic envy__ or twitter dm __dck pic exhaustion__ -- that's the origin story. we just dont know enough right now.
+* **its his own fault for following randos to bring up his follower count. dont put this on any of us, jason. you follow randos on twitter -> you get dck pics in your DMs. and then slowly over time, you do crimes. its like a slow boil.**
 
 now we dont know if hes on drugs, surprises, surprises, just so many. would that make so much sense that hes just been doing drugs this whole time and :mushroom:__hallucinating__:mushroom: everything. maybe doing them makes him feel less of a loser incel, so that makes sense. legally i dont think we can get a drug test out of him. i wonder if there's some written evidence somewhere where he talks about what hes on.
 
