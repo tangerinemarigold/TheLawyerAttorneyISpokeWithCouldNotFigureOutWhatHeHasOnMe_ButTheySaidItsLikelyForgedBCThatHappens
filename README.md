@@ -182,6 +182,8 @@ now we dont know if hes on drugs, surprises, surprises, just so many. would that
 
 * if he ever said i was on drugs -> every accusation is a confession -> he was just projecting -> hes been on drugs this entire time. 
 
+Jason is deeply disturbed and obssessed with atleast just me, among other people, this dude has poo brain [Celebrity worship syndrome](https://en.wikipedia.org/wiki/Celebrity_worship_syndrome). i wonder if we can get an input from a psychologist and present their findings to a judge. all of this has more components to it than just vanilla stalking. the situation that he build drove him into madness, it's really sad. you're ok, im ok, he lost his mind.
+
 ok im tired i have to sleep
 
 i don't know what his end goal is because i just dont know enough about the other side, but what exactly is his end goal?
