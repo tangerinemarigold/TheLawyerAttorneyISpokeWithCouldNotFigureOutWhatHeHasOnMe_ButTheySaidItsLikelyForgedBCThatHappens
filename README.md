@@ -178,7 +178,9 @@ you know what i was thinking. i got one d*ck pic from that professor in 2017. ca
  * what percent of the people hes following on twitter has sent him a dck pic, even 1% is a lot of pics. so his DMs must be filled with them. its a tough life being a social media influencer.
  * so he follows people on twitter to bring up his follower count. someone sees they have a new follower ... jason moore ... and theyre like hmmm "a total uggo but lets see what happpens", sends him a dck pic to his DMs. now ... does he open them or delete them hmmmmm. we'll never know.
 
-now we dont know if hes on drugs, surprises, surprises, just so many. would that make so much sense that hes just been doing drugs this whole time and __hallucinating__ everything. maybe doing them makes him feel less of a loser incel, so that makes sense. legally i dont think we can get a drug test out of him. i wonder if there's some written evidence somewhere where he talks about what hes on.
+now we dont know if hes on drugs, surprises, surprises, just so many. would that make so much sense that hes just been doing drugs this whole time and :mushroom:__hallucinating__:mushroom: everything. maybe doing them makes him feel less of a loser incel, so that makes sense. legally i dont think we can get a drug test out of him. i wonder if there's some written evidence somewhere where he talks about what hes on.
+
+* if he ever said i was on drugs -> every accusation is a confession -> he was just projecting -> hes been on drugs this entire time. 
 
 ok im tired i have to sleep
 
